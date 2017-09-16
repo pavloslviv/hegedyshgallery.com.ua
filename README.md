@@ -1,0 +1,1 @@
+# hegedyshgallery.com.ua
